@@ -1,3 +1,3 @@
-# nshnshf.github.io
+# Takcharm
 
-Handmade wallets
+Handmade bags and wallets
